@@ -2,3 +2,6 @@
 practice in github
 everyday practice
 dont give up 
+i have to be strong 
+i will face difficulties
+god will save me
